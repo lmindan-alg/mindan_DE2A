@@ -1,1 +1,0 @@
-# mindan_DE2A
